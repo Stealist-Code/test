@@ -1,1 +1,1 @@
-![gif](https://tenor.com/ru/view/party-mops-gif-1917460414538386311)
+![gif](https://media.tenor.com/GpwwFn9vC4cAAAAj/party-mops.gif)
