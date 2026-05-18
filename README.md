@@ -1,1 +1,1 @@
-![gif](https://tenor.com/ru/view/dancing-dance-vibing-grooving-microphone-gif-26677587)
+![gif](https://tenor.com/bRVu1.gif)
