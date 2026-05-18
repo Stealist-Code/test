@@ -1,7 +1,1 @@
-![gif](https://media.tenor.com/GpwwFn9vC4cAAAAj/party-mops.gif)
-![gif](https://media.tenor.com/GpwwFn9vC4cAAAAj/party-mops.gif)
-![gif](https://media.tenor.com/GpwwFn9vC4cAAAAj/party-mops.gif)
-![gif](https://media.tenor.com/GpwwFn9vC4cAAAAj/party-mops.gif)
-![gif](https://media.tenor.com/GpwwFn9vC4cAAAAj/party-mops.gif)
-![gif](https://media.tenor.com/GpwwFn9vC4cAAAAj/party-mops.gif)
-![gif](https://media.tenor.com/GpwwFn9vC4cAAAAj/party-mops.gif)
+![gif](https://media1.tenor.com/m/GiP-gOHVAAcAAAAC/dancing-dance.gif)
